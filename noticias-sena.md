@@ -1,7 +1,7 @@
 Noticias SENA
 
 De interés
-    
+
 Sigue abierta la Primera Oferta de Formación Presencial y a Distancia 2026 del SENA más de 41 mil cupos gratuitos para transformar tu futuro.
 
 DIRECCIÓN GENERAL
@@ -14,7 +14,7 @@ Las inscripciones estarán abiertas hasta el próximo jueves 5 de febrero, plazo
 
 “Queremos invitar muy cordial, efusiva y cariñosamente a todos los jóvenes, a todas las jóvenes de esta hermosa tierra colombiana para que se formen en el SENA, los esperamos. Seguramente allí encontrarán ustedes la posibilidad de realizar sus sueños, pero, sobre todo, no se olviden que en la Entidad todo es gratis.”, afirmó Jorge Eduardo Londoño Ulloa, director general del SENA.​
 
-El SENA brinda la posibilidad de adquirir conocimientos prácticos y teóricos que son directamente aplicables en el mundo laboral y empresarial, contribuyendo a la transformación social y económica de Colombia. 
+El SENA brinda la posibilidad de adquirir conocimientos prácticos y teóricos que son directamente aplicables en el mundo laboral y empresarial, contribuyendo a la transformación social y económica de Colombia.
 
 Entre los programas disponibles destacan sectores fundamentales de la economía nacional como:
 
@@ -33,19 +33,36 @@ Entre los programas disponibles destacan sectores fundamentales de la economía 
 ¿Cómo inscribirte?
 
 1. Ingresa a betowa.sena.edu.co
-
 2. En “Nuestra oferta educativa”, selecciona “Presencial”.
-
 3. Usa los filtros para elegir el nivel de formación y el área de conocimiento.
-
 4. Consulta los programas disponibles y su información.
-
 5. Regístrate o inicia sesión para completar tu inscripción.
 
 Una ventaja para avanzar aún más rápido: homologación con universidades
 
 Además, formarse en el SENA abre un camino más rápido hacia la educación superior. Quienes culminan programas tecnológicos pueden homologar sus estudios en universidades aliadas como la Universidad Piloto de Colombia, La Javeriana, Uniminuto, UDCA y el Politécnico Grancolombiano, entre otras.
- 
+
 Oficina de Comunicaciones Dirección General Camila Castillo / NJON
 
+
+
+PASOS PARA EL PROCESO DE INSCRIPCION:
+
+El proceso de inscripción al SENA para 2026 se realiza de forma virtual y gratuita a través de la plataforma Betowa (anteriormente SOFIA Plus), seleccionando la oferta de interés (técnico o tecnólogo), registrando datos personales, y completando pruebas de selección. La primera oferta de 2026 incluye fechas específicas en febrero según el documento de identidad. 
+
+Pasos detallados para la inscripción 2026:
+
+1. Ingresar a la plataforma: Acceda a betowa.sena.edu.co o el sitio web de SOFIA Plus para buscar la oferta 	educativa de su preferencia, ya sea presencial o virtual.
+
+2\. Buscar el programa: Utilice los filtros para seleccionar el nivel de formación (operario, auxiliar, técnico, 	tecnólogo), la ciudad y la jornada de interés.
+
+3\. Registro y Login: Si no tiene cuenta, seleccione "Registrarse" y siga los pasos con su documento de identidad. 	Si ya tiene, inicie sesión con su usuario y contraseña.
+
+4\. Formalizar inscripción: Haga clic en "Inscribirse" en el programa elegido, acepte los términos y diligencie el 	formulario con sus datos académicos y laborales.
+
+5\. Pruebas de selección: Realice la prueba web controlada o el taller de selección en las fechas programadas en el 	cronograma.
+
+6\. Verificar resultados: Consulte el cronograma de la primera convocatoria 2026 (frecuentemente en febrero) para 	ver si fue seleccionado y continuar con el proceso de matrícula. 
+
 ​​​​​​​​​​​​​
+
