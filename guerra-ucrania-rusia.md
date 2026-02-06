@@ -66,9 +66,9 @@ National Geographic: ¿Lenin fomentó realmente el nacionalismo ucraniano?
 Francesc Serra: En cierta medida, sí. Lenin toleró el auge del nacionalismo ucraniano durante los primeros años de la Revolución. Cuando Ucrania fue incorporada formalmente a la URSS en 1922, ya existía una república soviética ucraniana —teóricamente independiente, pero en la práctica subordinada a Moscú—. Durante los años veinte, este clima relativamente abierto propició un florecimiento cultural: hubo un auge de la literatura, de la lengua ucraniana y de la creatividad intelectual.
  
 
-National Geographic: En su discurso del 21 de febrero de 2022 —tres días antes de la invasión— Vladimir Putin justificó el reconocimiento de las repúblicas rebeldes de Donetsk y Lugansk afirmando que Ucrania era un constructo artificial. ¿Tiene algo de verdad esta afirmación?
+**National Geographic: En su discurso del 21 de febrero de 2022 —tres días antes de la invasión— Vladimir Putin justificó el reconocimiento de las repúblicas rebeldes de Donetsk y Lugansk afirmando que Ucrania era un constructo artificial. ¿Tiene algo de verdad esta afirmación?**
 
-Francesc Serra: Según Putin, la nación ucraniana no tendría legitimidad histórica ni cultural, sino que habría sido creada como un estado artificial en el contexto de la descomposición del Imperio ruso.
+***Francesc Serra: Según Putin, la nación ucraniana no tendría legitimidad histórica ni cultural, sino que habría sido creada como un estado artificial en el contexto de la descomposición del Imperio ruso.***
 
-Es cierto que durante la Primera Guerra Mundial, los alemanes fomentaron movimientos nacionalistas en territorios como Ucrania, Lituania, Letonia o Estonia, para debilitar a sus rivales. En muchos casos, como en Letonia, ni siquiera existía un nombre nacional definido hasta entonces. Sin embargo, que un nacionalismo se active en un momento de oportunidad política no invalida su legitimidad posterior.
+**Es cierto que durante la Primera Guerra Mundial, los alemanes fomentaron movimientos nacionalistas en territorios como Ucrania, Lituania, Letonia o Estonia, para debilitar a sus rivales. En muchos casos, como en Letonia, ni siquiera existía un nombre nacional definido hasta entonces. Sin embargo, que un nacionalismo se active en un momento de oportunidad política no invalida su legitimidad posterior.**
 
